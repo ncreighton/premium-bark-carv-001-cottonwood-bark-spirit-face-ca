@@ -1,0 +1,2 @@
+# premium-bark-carv-001-cottonwood-bark-spirit-face-ca
+Carving a spirit face from cottonwood bark is a journey you don't want to forget, but a thousand carvings later, the details blur. Stop losing the story of each piece.  This Notion template replaces scattered notes and fading memories with a single, searchable home for every carving record. It captures not just dimensions and dates, but the spirit,
